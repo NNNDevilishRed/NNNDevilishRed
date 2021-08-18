@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @NNNDevilishRed
 - 👀 I’m interested in science and engineering
-- 🌱 I’m currently learning science 
+- 🌱 I’m currently learning more about science 
 - 💞️ I’m looking to collaborate on education 
 - 📫 How to reach me email me at n24ksimpxb@gmail.com
 
